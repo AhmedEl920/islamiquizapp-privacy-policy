@@ -1,0 +1,1 @@
+# islamiquizapp-privacy-policy
